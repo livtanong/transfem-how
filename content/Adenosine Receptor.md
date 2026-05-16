@@ -1,0 +1,1 @@
+Simplified: a receptor that makes us tired

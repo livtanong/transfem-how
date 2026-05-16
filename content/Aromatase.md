@@ -1,0 +1,1 @@
+Converts [[Testosterone|T]] to [[Estradiol|E2]]. If you have excess [[Testosterone|T]], produces more [[Estradiol|E2]]. This is why steroid users (anabolic steroids are basically [[Testosterone|T]]) can develop gynecomastia, i.e. boobs.

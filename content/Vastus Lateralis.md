@@ -1,0 +1,1 @@
+The largest muscle of the Quadriceps. One of the best sites for [[Intramuscular Injection]].
