@@ -1,0 +1,1 @@
+The canonical androgen pathway goes from [[Progesterone|P4]] to [[Androstenedione]] and then [[Testosterone|T]], then [[Dihydrogen Testosterone|DHT]]. This is an alternate [[Pathway]] that goes directly from [[Progesterone|P4]] to [[Dihydrogen Testosterone|DHT]].

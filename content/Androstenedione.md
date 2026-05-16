@@ -1,0 +1,1 @@
+A precursor to [[Testosterone|T]] and all the downstream hormones.

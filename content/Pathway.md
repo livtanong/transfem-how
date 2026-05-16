@@ -1,0 +1,1 @@
+In biochemistry, a pathway is simply a series of biochemical reactions that transforms one chemical to another.

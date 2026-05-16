@@ -1,0 +1,1 @@
+The general term for the class of estrogenic hormones.
