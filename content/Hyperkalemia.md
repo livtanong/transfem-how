@@ -1,5 +1,7 @@
-"Hyper" - Over
-"Kalemia" - presence of "Kalium" in the blood
-"Kalium" - An archaic term for Potassium
+"Hyper" - Over or excess
+"Kal" - Short for "Kalium", an archaic term for Potassium
+"Emia" - Presence in blood
+
+Excess presence of Potassium in the blood.
 
 You do not want to have this.

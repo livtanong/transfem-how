@@ -8,6 +8,6 @@ An [[Anti-androgen]]. Reduces both production of [[Testosterone|T]], and sensiti
 
 This is the only FDA-approved [[Anti-androgen|AA]], and also arguably one of the worst.
 
-Don't eat bananas (or any other potassium-rich foods) while on Spiro. Failure to heed this advice can lead to [[Hyperkalemia]].
+Don't eat bananas (or any other potassium-rich foods) while on Spiro. Unchecked potassium consumption can lead to [[Hyperkalemia]].
 
 Monitor potassium and sodium.
